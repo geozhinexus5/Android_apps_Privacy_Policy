@@ -1,0 +1,2 @@
+# Android_apps_Privacy_Policy
+Android_apps_Privacy_Policy_page
